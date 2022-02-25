@@ -11,3 +11,5 @@
 👨‍🎓: Enrolled in the master course of Electronics Engineering at Politecnico di Milano.
 
 ⚡️: passion for 🏎 and 🏀.
+
+🔗: https://simoasnaghi.github.io
