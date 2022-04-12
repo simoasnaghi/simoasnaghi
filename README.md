@@ -12,4 +12,3 @@
 
 ⚡️: passion for 🏎 and 🏀.
 
-🔗: https://simoasnaghi.github.io
