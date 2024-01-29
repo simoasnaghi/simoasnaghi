@@ -6,9 +6,7 @@
 
 🏡: Milan, Italy.
 
-🎓: Bachelor degree in Electronics Engineering.
-
-👨‍🎓: Enrolled in the master course of Electronics Engineering at Politecnico di Milano.
+🎓: B.S.c and M.S.c in Electronics Engineering at Politecnico di Milano (@polimi).
 
 ⚡️: passion for 🏎 and 🏀.
 
